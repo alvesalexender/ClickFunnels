@@ -51,7 +51,7 @@ This is the most widely used ClickFunnels plan.
 
 **Best for:** growing businesses and serious marketers.
 
-[Learn Important Points About ClickFunnels Before You Start](https://sortly.top/4iikrUC)
+👉 [Learn Important Points About ClickFunnels Before You Start](https://sortly.top/4iikrUC)
 
 ### 3. Optimize Plan – For Advanced Marketers
 
@@ -165,7 +165,7 @@ Before buying, understand this:
 
 ClickFunnels works best when combined with a strong offer and traffic strategy.
 
-[Consider This Points Before You Joining This Advanced Sales Funnel Builder](https://sortly.top/4iikrUC)
+👉 [Consider This Points Before You Joining This Advanced Sales Funnel Builder](https://sortly.top/4iikrUC)
 
 ## Final Thoughts on ClickFunnels Pricing
 

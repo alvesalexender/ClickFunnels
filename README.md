@@ -84,7 +84,7 @@ This is the highest-tier plan designed for large-scale operations.
 
 ## ClickFunnels Free Trial (2026)
 
-ClickFunnels offers a 14-Day Free Trial.
+[ClickFunnels offers a 14-Day Free Trial](https://github.com/rehrehmulli/ClickFunnels/).
 
 During this period, you get full access to:
 
@@ -122,7 +122,7 @@ Your subscription includes:
 - Payment integration
 - Sales tracking tools
 
-Instead of buying multiple tools, ClickFunnels combines everything into one platform.
+Instead of buying multiple tools, [ClickFunnels combines everything into one platform](https://github.com/sarvapallimen/clickfunnels/).
 
 ## Is ClickFunnels Expensive in 2026?
 

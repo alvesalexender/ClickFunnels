@@ -1,4 +1,4 @@
-# ClickFunnels Pricing (2026): Exact Costs, Subscription Plans & Trial Explained
+# ClickFunnels Pricing 2026: Exact Costs, Subscription Plans & Trial Explained
 
 If you are searching for ClickFunnels pricing, you likely want a clear answer to one question:
 
